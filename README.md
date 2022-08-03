@@ -4,7 +4,7 @@ Currently, I’m working on 8 Week SQL Challenge, the Virtual Data Apprenticeshi
  Currently, I'm learning skills for data analyst.
  Ask me about my projects. How to reach me: usnaim@aol.com
  
- Fun fact: This profile is still under construction :construction_worker_woman:
+ This profile is still under construction :construction_worker_woman:
 
 
 
